@@ -1,2 +1,3 @@
 # mifepristone-dubai
-Mifepristone Dubai – safe options at https://abortionpillsuae.com
+
+[Mifepristone Dubai](https://abortionpillsuae.com) – safe options and information.
